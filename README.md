@@ -1,0 +1,1 @@
+# Ten-continuous-shooting-sophisticated-photo-taking-application
